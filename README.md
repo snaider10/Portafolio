@@ -20,4 +20,4 @@ Pueden encontrar mi portafolio en el siguiente enlace: [https://snaider10.github
 
 ¡Espero que les guste mi trabajo! Si tienen alguna pregunta o sugerencia, no duden en contactarme. :speech_balloon:
 
-nsnsnsnsn
+
